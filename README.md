@@ -1,4 +1,4 @@
-# 👋 Olá! Eu sou a Karen Cristina Gusmão
+# 👋 Olá! Eu sou Karen Gusmão
 
 ### 🛡️ Analista de Cibersegurança em Formação | Cisco Mujer Digital & Ciências Biológicas
 
